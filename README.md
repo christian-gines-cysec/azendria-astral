@@ -23,7 +23,7 @@ We showcase skill, execution, and real capability.
 
 ---
 
-🛡️ Chemo Safe Language (Official Positioning)
+🛡️ Kimo Safe Language (Official Positioning)
 
 Azcendria Astral develops its own intellectual property, automation tools, training systems, and talent-assessment frameworks.
 We do NOT claim partnership, co-ownership, or IP integration with any external AI model or platform.
